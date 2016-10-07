@@ -1,2 +1,0 @@
-# adoteumamigo
-# adoteumamigo
